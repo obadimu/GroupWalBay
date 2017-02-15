@@ -1,1 +1,1 @@
-# GroupWalBay
+With Nevada State Bank's SMART ATMs, you can now deposit cash and checks without having to fill out a deposit slip or use an envelope. Just follow the simple directions on the touch-screen. Here's how easy it is: Insert your ATM card and use your PIN. Deposit up to 15 checks or 50 bills at a time.
